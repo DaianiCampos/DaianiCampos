@@ -6,5 +6,11 @@
 - Utilizo o Alura com meus alunos
 
 - ### Você pode entrar em contato comigo pelo meu email
+
+
+**daianic@prof.educacao.sp.gov.br**
+
+
+
   
 
